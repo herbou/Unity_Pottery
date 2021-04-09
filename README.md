@@ -1,7 +1,7 @@
 # Pottery in Unity
 
 ### Playlist 
-https://instagram.com/reynoldsandreyner?igshid=1xfgvv1un5ebk
+https://www.youtube.com/playlist?list=PLMWgYNtBT-xPakS94ORkSZXpzwbiPoxw1
 ### Part 1
 https://youtu.be/U7T-aXBkSr4
 ### Part 2
